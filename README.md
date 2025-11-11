@@ -11,3 +11,4 @@
   ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀    ⠀  ⠀  ⠀    ⠀   ⠀  ⠀  ⠀tell me if this looks off, i can't use github ˙◠˙
 
 
+  ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=shiqingxuanbear)
