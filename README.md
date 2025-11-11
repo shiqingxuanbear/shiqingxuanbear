@@ -10,4 +10,4 @@
 ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀    ⠀⠀  ⠀  ⠀  ⠀  ⠀      ⠀   quiet at first but ill respond if u whisper 
   ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀    ⠀  ⠀  ⠀    ⠀   ⠀  ⠀  ⠀tell me if this looks off, i can't use github ˙◠˙
 
-   ![Profile view counter on GitHub](https://shiqingxuanbear.com/ghpvc/?username=shiqingxuanbear)
+
