@@ -1,6 +1,6 @@
 <p align="center">"Much fitting for his title, his personality was like the wind."
            
-   ![image alt](https://github.com/shiqingxuanbear/shiqingxuanbear/blob/28b22f62cba315dc6b4b733d8442fba4bc0064ee/IMG_8615.PNG)
+   ![image alt](https://github.com/shiqingxuanbear/shiqingxuanbear/blob/116825097e689e54814131884061a78917104390/Untitled303_20251128174601.PNG)
  
 <p align="center"> ㅤㅤㅤㅤㅤㅤㅤc+h always ! im not scary guys , also check my carrd ˚ ⋆˚✿˖° dont copy my ponies huhu..
   ⠀  ⠀  ⠀  ⠀  
