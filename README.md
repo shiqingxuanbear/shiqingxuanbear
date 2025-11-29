@@ -1,6 +1,6 @@
    ![image alt](https://github.com/nopathsarebound/nopathsarebound/blob/d0e4b46cbf78bf88edc722e237aab6e318be7385/IMG_8615.PNG)        ⠀ ⠀  ⠀          
    
-   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀   ⠀ ⠀  ⠀ ⠀ ⠀ rae ⠀ /⠀ yuna ! ⠀ ⠀                       
+   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀   ⠀ ⠀  ⠀ ⠀ ⠀ <p align="center"> rae ⠀ /⠀ yuna ! ⠀ ⠀                       
    ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
   ⠀    ⠀  ⠀      ⠀ ⠀  ⠀     𓎢𓎠𓎟𓎠𓎡 ᭪
  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀ ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ⠀⠀ ⠀  c+h any1 plspls im not scary 𑣲
@@ -11,4 +11,4 @@
   ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀  ⠀    ⠀  ⠀      ⠀ ⠀  ⠀    ⠀  ⠀  ⠀    ⠀   ⠀  ⠀  ⠀tell me if this looks off, i can't use github ˙◠˙
 
 
-  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=shiqingxuanbear)
+  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=wind%20currents&color=a4d1d0&style=flat" alt="shiqingxuanbear" /> </p>
