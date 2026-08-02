@@ -1,4 +1,4 @@
-<p align="center">"Much fitting for his title, his personality was like the wind."
+<p align="center">"꧑ᥙᥴh fιttιᥒg f᥆r hι᥉ tιtᥣᥱ, hι᥉ ρᥱr᥉᥆ᥒᥲᥣιty ᥕᥲ᥉ ᥣιkᥱ thᥱ ᥕιᥒd."
            
    ![image alt](https://github.com/shiqingxuanbear/shiqingxuanbear/blob/b7eeb4b9b30ae2fbf5be1a6f4fab81e0e614c7d2/Untitled411_20260802005619.PNG)
  
