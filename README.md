@@ -8,4 +8,4 @@
 
 
  
-<p align="center">ᥴ+h ᥲᥣᥕᥲy᥉ ! ι꧑ ᥒ᥆t ᥉ᥴᥲry gᥙy᥉ ι ρr᥆꧑ι᥉ᥱ , ᥲᥣ᥉᥆ ᥴhᥱᥴk ꧑y ᥴᥲrrd  <p align="center">˚ ⋆˚✿˖° d᥆ᥒt ᥴ᥆ρy ꧑y ρ᥆ᥒιᥱ᥉ & d᥆ᥒt fᥙᥣᥣy ᥴ᥆᥎ᥱr ᥙᥒᥣᥱ᥉᥉ frιᥱᥒd᥉
+<p align="center">ᥴ+h ᥲᥣᥕᥲy᥉ ! ι꧑ ᥒ᥆t ᥉ᥴᥲry gᥙy᥉ ι ρr᥆꧑ι᥉ᥱ , ᥲᥣ᥉᥆ ᥴhᥱᥴk ꧑y ᥴᥲrrd ! <p align="center">˚ ⋆˚✿˖° d᥆ᥒt ᥴ᥆ρy & d᥆ᥒt fᥙᥣᥣy ᥴ᥆᥎ᥱr ᥙᥒᥣᥱ᥉᥉ frιᥱᥒd᥉
