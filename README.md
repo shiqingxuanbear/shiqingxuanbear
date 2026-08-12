@@ -3,9 +3,10 @@
 ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=wind%20currents&color=a4d1d0&style=flat" alt="shiqingxuanbear" /> </p>
 
 
-<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="./Untitled415_20260811195342.png" alt="ata" width="210"></a><a href="https://sundayshalo.straw.page"><img src="./Untitled415_20260811200813.png" alt="strawpage" width="210">
-  </a>
-</p>
+<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="./Untitled415_20260811195342.png" alt="ata" width="210"></a>&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://sundayshalo.straw.page"><img src="./Untitled415_20260811200813.png" alt="strawpage" width="210"></a>
+
+
 
            
    ![image alt](https://github.com/shiqingxuanbear/shiqingxuanbear/blob/b7eeb4b9b30ae2fbf5be1a6f4fab81e0e614c7d2/Untitled411_20260802005619.PNG)
