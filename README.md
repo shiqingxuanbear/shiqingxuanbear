@@ -4,8 +4,6 @@
 </p>
 ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=⏾⋆.˚wind%20currents%20&color=a4d1d0&style=flat" alt="shiqingxuanbear" /> </p>
 
-<p align="center">ᥴ+h ᥲᥣᥕᥲy᥉ ! ι꧑ ᥒ᥆t ᥉ᥴᥲry gᥙy᥉ ι ρr᥆꧑ι᥉ᥱ , ᥲᥣ᥉᥆ ᥴhᥱᥴk ꧑y ᥴᥲrrd ! <p align="center">˚ ⋆˚✿˖° d᥆ᥒt ᥴ᥆ρy & d᥆ᥒt fᥙᥣᥣy ᥴ᥆᥎ᥱr ᥙᥒᥣᥱ᥉᥉ frιᥱᥒd᥉
-
 <p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="./Untitled421_20260903232901.png" alt="ata" width="220"></a>&nbsp;&nbsp;&nbsp;&nbsp;
   <a href="https://sundayshalo.straw.page"><img src="./Untitled421_20260903232904.png" alt="strawpage" width="220"></a>
 
