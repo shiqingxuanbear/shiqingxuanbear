@@ -1,13 +1,14 @@
 
-  ![image alt](https://github.com/shiqingxuanbear/shiqingxuanbear/blob/849491d35e2e2abce86fad153ccbc1c30d7ed48b/Untitled421_20260903232000.png)
-
+<p align="center">
+  <img src="https://github.com/shiqingxuanbear/shiqingxuanbear/blob/3961df15fbc08129af7c66756c6a0ecbc3776380/Untitled421_20260903233428.png?raw=true" alt="image alt" width="650" />
+</p>
   
 <p align="center">"꧑ᥙᥴh fιttιᥒg f᥆r hι᥉ tιtᥣᥱ, hι᥉ ρᥱr᥉᥆ᥒᥲᥣιty ᥕᥲ᥉ ᥣιkᥱ thᥱ ᥕιᥒd."
 
 ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=wind%20currents&color=a4d1d0&style=flat" alt="shiqingxuanbear" /> </p>
 
 
-<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="./Untitled415_20260811195342.png" alt="ata" width="210"></a>&nbsp;&nbsp;&nbsp;&nbsp;
+<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="[Untitled421_20260903232904.png]" alt="ata" width="210"></a>&nbsp;&nbsp;&nbsp;&nbsp;
   <a href="https://sundayshalo.straw.page"><img src="./Untitled415_20260811200813.png" alt="strawpage" width="210"></a>
 
 
