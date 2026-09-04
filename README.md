@@ -8,8 +8,8 @@
 ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=wind%20currents&color=a4d1d0&style=flat" alt="shiqingxuanbear" /> </p>
 
 
-<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="[Untitled421_20260903232904.png]" alt="ata" width="210"></a>&nbsp;&nbsp;&nbsp;&nbsp;
-  <a href="https://sundayshalo.straw.page"><img src="./Untitled415_20260811200813.png" alt="strawpage" width="210"></a>
+<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="[./Untitled421_20260903232901.png]" alt="ata" width="210"></a>&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://sundayshalo.straw.page"><img src="./Untitled421_20260903232904.png" alt="strawpage" width="210"></a>
 
 
  
