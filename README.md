@@ -1,3 +1,7 @@
+
+  ![image alt](https://github.com/shiqingxuanbear/shiqingxuanbear/blob/849491d35e2e2abce86fad153ccbc1c30d7ed48b/Untitled421_20260903232000.png)
+
+  
 <p align="center">"꧑ᥙᥴh fιttιᥒg f᥆r hι᥉ tιtᥣᥱ, hι᥉ ρᥱr᥉᥆ᥒᥲᥣιty ᥕᥲ᥉ ᥣιkᥱ thᥱ ᥕιᥒd."
 
 ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=wind%20currents&color=a4d1d0&style=flat" alt="shiqingxuanbear" /> </p>
