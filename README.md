@@ -1,5 +1,5 @@
 <p align="center">ᣟ݂   ᣟ 𓐇    ݂   𓈒 ✿ຼ 。 "꧑ᥙᥴh fιttιᥒg f᥆r hι᥉ tιtᥣᥱ, hι᥉ ρᥱr᥉᥆ᥒᥲᥣιty ᥕᥲ᥉ ᥣιkᥱ thᥱ ᥕιᥒd."  ゜  𓏼ഒ·˚ 。
-  <p align="center">ʷᵃᵗᶜʰ ᵒᵘᵗ ᶠᵒʳ ˣʸˡ ..
+ 
 <p align="center">
   <img src="https://github.com/shiqingxuanbear/shiqingxuanbear/blob/336a9a04d2c56b43a95cd76bd41a1caaae8fdceb/Untitled421_20260903235204.png" alt="image alt" width="635" />
 </p>
