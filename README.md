@@ -9,7 +9,7 @@
 
 ⠀  <p align="center"> <img src="https://komarev.com/ghpvc/?username=shiqingxuanbear&label=⏾⋆.˚wind%20currents%20&color=ABCAD3&style=flat" alt="shiqingxuanbear" /> </p>
 
-<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="https://github.com/shiqingxuanbear/shiqingxuanbear/blob/2a8c5ed77c3397a06b779f9eb985623f2e16454c/Untitled432_20260929222431.png" alt="ata" width="150"></a>&nbsp;&nbsp;&nbsp;&nbsp;
-  <a href="https://sundayshalo.straw.page"><img src="https://github.com/shiqingxuanbear/shiqingxuanbear/blob/dc61f01422e3743e348b43845bc10815c6d807f3/Untitled432_20260929222447.png" alt="strawpage" width="125"></a>
+<p align="center"><a href="https://shiqingxuanbear.atabook.org"><img src="https://github.com/shiqingxuanbear/shiqingxuanbear/blob/2a8c5ed77c3397a06b779f9eb985623f2e16454c/Untitled432_20260929222431.png" alt="ata" width="170"></a>&nbsp;&nbsp;&nbsp;&nbsp;
+  <a href="https://sundayshalo.straw.page"><img src="https://github.com/shiqingxuanbear/shiqingxuanbear/blob/dc61f01422e3743e348b43845bc10815c6d807f3/Untitled432_20260929222447.png" alt="strawpage" width="150"></a>
 
 
